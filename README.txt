@@ -1,1 +1,1 @@
-Starting again. Do I lose it all?
+I've had enough of this. I'm starting again.
